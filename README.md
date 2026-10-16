@@ -1,6 +1,6 @@
 # Vikram Koti_APM_PO_PM
 
-                                            ** VIKRAM** ** KOTI **
+                                                  VIKRAM KOTI
 **ASSOCIATE** **PRODUCT** **MANAGER** | **PRODUCT** **OWNER** | AI **PRODUCT** **MANAGEMENT** | **HEALTHCARE** SaaS
 Hyderabad, India | +91-**8897466708** / **8074177904** | [vikramkoti.tw@gmail.com](mailto:vikramkoti.tw@gmail.com) | linkedin.com/in/vikram-koti
 
